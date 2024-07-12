@@ -1,1 +1,1 @@
-Hi ! in this account i will share python script :)
+Hi ! in this account i will share all things i code :p
